@@ -1,0 +1,2 @@
+# aszf
+ÁLTALÁNOS SZERZŐDÉSI FELTÉTELEK
