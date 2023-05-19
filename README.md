@@ -1,6 +1,3 @@
-# ÁLTALÁNOS SZERZŐDÉSI FELTÉTELEK
-www.flexboxapp.com
-
 ## 1. ÁLTALÁNOS RENDELKEZÉSEK
 ### Preambulum
 
